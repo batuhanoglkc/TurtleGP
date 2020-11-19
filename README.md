@@ -7,7 +7,7 @@ Have fun.
 # I'm looking for advices and feedbacks.
 # You can develop too and send me.
 
-**I'm gonna add music playlist with next update.
+**Playlist updated.
 
 Thank you.
 Batuhan OĞLAKÇIOĞLU
